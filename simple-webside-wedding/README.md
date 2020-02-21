@@ -1,0 +1,1 @@
+these are the codes for a simple wedding webside
